@@ -1,0 +1,1 @@
+# hackintosh-Lenovo-ideapad-510
